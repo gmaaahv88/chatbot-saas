@@ -374,7 +374,7 @@ Full Stack Developer | Especialista em Chatbots & SaaS
 
 - 📧 Email: g.maaah.v@gmail.com
 - 🐙 GitHub: [@gmaaahv88](https://github.com/gmaaahv88)
-- 💼 LinkedIn: [seu-profile]
+- 💼 LinkedIn: [www.linkedin.com/in/marcela-gonçalves-vieira]
 
 ---
 
